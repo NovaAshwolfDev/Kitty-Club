@@ -1,2 +1,2 @@
-# Kitty-Club
+# Kitty Club
 Temporary name probably
